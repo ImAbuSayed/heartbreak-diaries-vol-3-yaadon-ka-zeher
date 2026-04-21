@@ -1,0 +1,162 @@
+# Raw Content: Heartbreak Diaries (Vol. 3): Yaadon Ka Zeher
+
+
+<p>Music has always been one of the most powerful ways to express emotions that words alone cannot capture. With <strong>Heartbreak Diaries (Vol. 3): Yaadon Ka Zeher</strong>, artist <strong>Abu Sayed</strong> delivers a haunting and deeply emotional album that explores the darker side of love and memory.</p>
+
+
+
+<p>Released on <strong>19 March 2026</strong>, the album is the third installment of the <em>Heartbreak Diaries</em> series. While the earlier albums focused on love and loneliness, this chapter dives deeper into the psychological impact of heartbreak — where memories themselves become poison.</p>
+
+
+
+<div class="wp-block-yoast-seo-table-of-contents yoast-table-of-contents"><h2>Table of contents</h2><ul><li><a href="#h-tracklist" data-level="3">🎧 Tracklist</a></li><li><a href="#h-lyrics" data-level="2">Lyrics</a><ul><li><a href="#h-khoon-ke-aansu" data-level="3">Khoon Ke Aansu</a></li><li><a href="#h-qatra-qatra-maut" data-level="3">Qatra Qatra Maut</a></li><li><a href="#h-zehreeli-mohabbat" data-level="3">Zehreeli Mohabbat</a></li><li><a href="#h-aakhri-saans-baaki" data-level="3">Aakhri Saans Baaki</a></li></ul></li></ul></div>
+
+
+
+<h2 class="wp-block-heading">The Theme of &#8220;Yaadon Ka Zeher&#8221;</h2>
+
+
+
+<p>The title <em>Yaadon Ka Zeher</em> translates to <strong>“The Poison of Memories.”</strong> It reflects the emotional state where past love continues to haunt someone long after the relationship has ended.</p>
+
+
+
+<p>Each song in the album captures a different stage of heartbreak — grief, regret, longing, emotional collapse, and ultimately acceptance.</p>
+
+
+
+<p>The music blends <strong>Bollywood ballad style with cinematic dark romance elements</strong>, creating an atmosphere that feels both nostalgic and haunting.</p>
+
+
+
+<h2 class="wp-block-heading">Tracklist Highlights</h2>
+
+
+
+<p>The album consists of <strong>seven tracks</strong>, each telling its own emotional story.</p>
+
+
+
+<p><strong>Khoon Ke Aansu</strong> opens the album with intense emotional pain, portraying a broken heart crying metaphorical “tears of blood.”</p>
+
+
+
+<p><strong>Qatra Qatra Maut</strong> explores the slow emotional death that comes from losing someone you once loved deeply.</p>
+
+
+
+<p><strong>Zehreeli Mohabbat</strong> reflects on love that once felt beautiful but eventually turned toxic.</p>
+
+
+
+<p><strong>Aakhri Saans Baaki</strong> closes the emotional arc with a sense of fading hope and lingering memories.</p>
+
+
+
+<p>The album also includes <strong>special versions</strong> of key tracks, offering alternate arrangements that emphasize the emotional depth of the songs.</p>
+
+
+
+<h2 class="wp-block-heading">Musical Style and Production</h2>
+
+
+
+<p>The sound design of the album combines:</p>
+
+
+
+<ul class="wp-block-list">
+<li>Emotional <strong>Bollywood-style orchestral arrangements</strong></li>
+
+
+
+<li><strong>Melodic piano and violin</strong></li>
+
+
+
+<li>Dark atmospheric synth pads</li>
+
+
+
+<li>Slow rhythmic beats</li>
+
+
+
+<li>Deep expressive male vocals</li>
+</ul>
+
+
+
+<p>These elements together create a cinematic listening experience that feels like the soundtrack of a tragic love story.</p>
+
+
+
+<h2 class="wp-block-heading">Abu Sayed&#8217;s Artistic Vision</h2>
+
+
+
+<p>As the <strong>artist, composer, producer, and lyricist</strong>, Abu Sayed maintains complete creative control over the project. This allows the album to feel deeply personal and emotionally authentic.</p>
+
+
+
+<p>His storytelling approach transforms each track into a chapter of a larger narrative — the journey of someone trying to survive the emotional aftermath of love.</p>
+
+
+
+<h3 class="wp-block-heading">A Powerful Ending to the Trilogy</h3>
+
+
+
+<p>With <em>Yaadon Ka Zeher</em>, the <strong>Heartbreak Diaries trilogy</strong> reaches its most intense emotional stage. The album captures the moment when memories stop being comforting and start becoming painful reminders of what was lost.</p>
+
+
+
+<p>For listeners who enjoy <strong>sad romantic music, emotional storytelling, and cinematic Bollywood-style songs</strong>, this album offers a powerful and immersive experience.</p>
+
+
+
+<h3 class="wp-block-heading" id="h-tracklist">🎧 Tracklist</h3>
+
+
+
+<p>00:00 Khoon Ke Aansu<br>07:09 Qatra Qatra Maut<br>13:03 Zehreeli Mohabbat<br>18:31 Aakhri Saans Baaki<br>24:44 Qatra Qatra Maut (Special Version)<br>31:07 Zehreeli Mohabbat (Special Version)<br>36:42 Aakhri Saans Baaki (Special Version)</p>
+
+
+
+<h2 class="wp-block-heading" id="h-lyrics">Lyrics</h2>
+
+
+
+<h3 class="wp-block-heading" id="h-khoon-ke-aansu">Khoon Ke Aansu</h3>
+
+
+
+<p>आँखों से अब पानी नहीं,<br>देखो लहू बहता है…<br>मेरा इश्क़ अब रूह बनकर,<br>तुझसे ये कहता है…<br>खामोशी चीखती है इन खाली कमरों में,<br>तेरी ही परछाई दिखती है दीवारों में।<br>साँसें भी अब तो बोझ सी लगती हैं,<br>हर घड़ी तेरी यादें ज़हर सी चखती हैं।<br>ये रातें अब डसने को आती हैं मुझे।<br>हर वादा तेरा, एक काँटा बनके,<br>मेरे दिल में है चुभके…<br>हर लम्हा जो संग था, एक अंगारा बनके,<br>मेरी रूह को है दहके…<br>ये इश्क़ नहीं, ये है सज़ा, जीने की कोई नहीं वजह,<br>तेरे दिए ज़ख्मों को सी रहा हूँ,<br>मैं रोता हूँ खून के आँसू, मैं जीता नहीं, बस जी रहा हूँ।<br>तेरा वो काला जादू, अब भी मुझपे तारी है,<br>मैं रोता हूँ खून के आँसू, ये कैसी लाचारी है।<br>तेरी हँसी की गूंज अब, कानों में चुभती है,<br>वो फूलों की खुशबू भी, अब आग सी लगती है।<br>जिन राहों पे चलते थे हम हाथ थाम कर,<br>वही राहें अब पूछती हैं तेरा नाम लेकर।<br>हर मोड़ पर बस तेरा ही धोखा खड़ा है।<br>हर सपना तेरा, एक शीशा बनके,<br>मेरी आँखों में है टूटके…<br>हर धड़कन मेरी, एक तड़पन बनके,<br>मुझसे ही है रूठके…<br>ये इश्क़ नहीं, ये है सज़ा, जीने की कोई नहीं वजह,<br>तेरे दिए ज़ख्मों को सी रहा हूँ,<br>मैं रोता हूँ खून के आँसू, मैं जीता नहीं, बस जी रहा हूँ।<br>तेरा वो काला जादू, अब भी मुझपे तारी है,<br>मैं रोता हूँ खून के आँसू, ये कैसी लाचारी है।<br>क्या यही थी मोहब्बत तेरी? एक जलता हुआ ख़्वाब?<br>मेरी हर दुआ का तूने, दिया ये कैसा जवाब?<br>रूह काँप जाती है मेरी, जब तेरा अक्स आता है,<br>प्यार का वो हर एक पल, अब मुझे डराता है।<br>बंद आँखों में भी, तू ही तो दिखती है,<br>एक डरावना साया बनकर, साथ मेरे चलती है।<br>तेरी यादों की ज़ंजीरों में, मैं क़ैद हो गया हूँ,<br>ज़िंदा हूँ पर अंदर से, मैं ख़त्म हो गया हूँ।<br>मेरी हर साँस पर अब तेरा ही पहरा है।<br>अब तो अँधेरे से दोस्ती है, तन्हाई मेरा घर है,<br>ना कोई मंज़िल है मेरी, ना कोई अब सफ़र है।<br>मिटा दिए हैं तूने तो, मेरे वजूद के हर निशाँ,<br>कैसे कहूँ कि ले ली है, तूने ही मेरी जान।<br>दर्द का ये समंदर बहुत गहरा है।<br>ये इश्क़ नहीं, ये है सज़ा, जीने की कोई नहीं वजह,<br>तेरे दिए ज़ख्मों को सी रहा हूँ,<br>मैं रोता हूँ खून के आँसू, मैं जीता नहीं, बस जी रहा हूँ।<br>तेरा वो काला जादू, अब भी मुझपे तारी है,<br>मैं रोता हूँ खून के आँसू, ये कैसी लाचारी है।<br>खून के आँसू…<br>बस खून के आँसू…<br>मेरी आँखों से…<br>बस खून के आँसू…</p>
+
+
+
+<h3 class="wp-block-heading" id="h-qatra-qatra-maut">Qatra Qatra Maut</h3>
+
+
+
+<p>साँसें ये ज़हरीली…<br>यादें पथरीली…<br>घुटता है दम…<br>क़तरा क़तरा मौत… धीरे धीरे सनम…<br>वो गलियाँ अब लगती हैं अनजान सी<br>जिनपे लिखी थी हमने अपनी कहानी<br>तेरी हँसी की गूँज अब एक चीख़ है<br>वक्त की सुई जैसे मुझपे ही चीन्ही<br>अंधेरों से अब दोस्ती है मेरी<br>परछाइयाँ भी बातें करती हैं तेरी<br>हर आहट पे दिल सहम जाता है<br>ये वहम मुझको हर पल भरमाता है<br>ये इश्क़ तेरा, क़तरा क़तरा मौत है<br>हर याद तेरी, गहरी सी एक चोट है<br>जीता हूँ लेकिन, ज़िंदगी अब रौथ है<br>ये इश्क़ तेरा, क़तरा क़तरा मौत है<br>बंद कमरे में बिखरी तेरी निशानियाँ<br>जैसे पुरानी कोई भुली कहानियाँ<br>तस्वीर तेरी तकती है यूँ मुझे<br>जैसे पूछती हो, &#8220;क्या खता थी मेरी?&#8221;<br>ये रातें अब सदियों सी लंबी हैं<br>आँखों में नींदें नहीं, बस नमी है<br>हर सपना एक डरावना सा मंज़र है<br>मेरे ही अंदर धंसा कोई खंजर है<br>ये इश्क़ तेरा, क़तरा क़तरा मौत है<br>हर याद तेरी, गहरी सी एक चोट है<br>जीता हूँ लेकिन, ज़िंदगी अब रौथ है<br>ये इश्क़ तेरा, क़तरा क़तरा मौत है<br>तेरी खुशबू जो हवा में है घुली हुई<br>जैसे कोई सज़ा हो मुझको मिली हुई<br>साँस लेता हूँ तो जलती है छाती<br>तेरी मौजूदगी की वहशत है सताती<br>आईने में चेहरा अब मेरा नहीं लगता<br>कोई साया है जो चुपके से है हँसता<br>धड़कनें भी अब तो बोझ सी लगती हैं<br>रूह मेरी जिस्म से हर दिन झगड़ती है<br>क्या तुम्हें भी कभी याद आती है मेरी?<br>या बस मैं ही हूँ क़ैदी तेरी यादों का?<br>ये खामोशी जो चीखती है हर पहर<br>जवाब है क्या तेरे पास इन सवालों का?<br>टूट रहा हूँ… बिखर रहा हूँ…<br>ये इश्क़ तेरा, क़तरा क़तरा मौत है<br>हर याद तेरी, गहरी सी एक चोट है<br>जीता हूँ लेकिन, ज़िंदगी अब रौथ है<br>ये इश्क़ तेरा, क़तरा क़तरा मौत है<br>क़तरा… क़तरा…<br>मौत…<br>क़तरा… क़तरा… सनम…</p>
+
+
+
+<h3 class="wp-block-heading" id="h-zehreeli-mohabbat">Zehreeli Mohabbat</h3>
+
+
+
+<p>ये मोहब्बत है…<br>या मौत का साया है…<br>मेरे दिल में तूने…<br>कैसा ज़हर मिलाया है…<br>पहली नज़र में लगा, जैसे कोई दुआ मिली<br>सदियों की तपस्या का, मुझको सिला मिली<br>तेरी हर एक मुस्कान पे, मैं खुद को हार बैठा<br>इक ख़ूबसूरत जाल में, मैं जान निसार बैठा<br>पर अब ये साँसें बोझ हैं, धड़कन में एक शोर है<br>ये दिल मेरा था कल तलक, अब इसपे किसका ज़ोर है<br>रातें बनीं डरावनी, दिन में भी चैन नहीं<br>ये ज़हरीली मोहब्बत तेरी, मुझको फ़ना कर रही<br>रग रग में उतर के मेरी, रूह को जुदा कर रही<br>ये कैसी लत है लगी, जो छूटती ही नहीं<br>तेरी यादों की क़ैद से, ये जान टूटती ही नहीं<br>दीवारों पे दिखता है, अब अक्स बस तेरा<br>मेरे ही घर में जैसे, हो मुझपे पहरा तेरा<br>तेरी ख़ुशबू हवाओं में, एक वहम सी लगती है<br>हर आहट पे लगता है, के तू ही कहीं हँसती है<br>हर पल एक वहशत का, मंज़र मेरे साथ है<br>मेरे हाथों में जैसे, बस ख़ालीपन का हाथ है<br>आँखों में नींद नहीं, बस अश्क़ों की नमी<br>ये ज़हरीली मोहब्बत तेरी, मुझको फ़ना कर रही<br>रग रग में उतर के मेरी, रूह को जुदा कर रही<br>ये कैसी लत है लगी, जो छूटती ही नहीं<br>तेरी यादों की क़ैद से, ये जान टूटती ही नहीं<br>क्या इश्क़ ऐसा होता है, जो साँसें छीन ले?<br>जो जीने की हर वजह, धीरे से छीन ले?<br>ये प्यार है या अज़ाब है, कोई तो बतलाए<br>इस दर्द के समंदर से, कैसे कोई बच पाए?<br>तेरे दिए हुए वो ख़त, अब आग से लगते हैं<br>वो वादे और वो क़समें, सब नाग से डसते हैं<br>भूलना चाहूँ तुझको, पर और याद आता है<br>मेरा हर एक ज़ख्म, तेरा ही नाम गाता है<br>ये ज़हरीली मोहब्बत तेरी, मुझको फ़ना कर रही<br>रग रग में उतर के मेरी, रूह को जुदा कर रही<br>ये कैसी लत है लगी, जो छूटती ही नहीं<br>तेरी यादों की क़ैद से, ये जान टूटती ही नहीं<br>अब तो ये आलम है, के खुद से डरता हूँ मैं<br>हर रोज़ थोड़ा थोड़ा, बिन मौत मरता हूँ मैं<br>ना ज़िन्दगी है बाकी, ना मौत ही आती है<br>तेरी मोहब्बत मुझको, बस यूँ ही तड़पाती है<br>ज़हरीली मोहब्बत…<br>रग रग में… तेरा ज़हर…<br>फ़ना… हो रहा हूँ…<br>हर पहर… हर पहर…<br>तेरा ज़हर…</p>
+
+
+
+<h3 class="wp-block-heading" id="h-aakhri-saans-baaki">Aakhri Saans Baaki</h3>
+
+
+
+<p>मेरी रूह में तू है बाकी…<br>तुझमें ही मेरी… आखिरी सांस बाकी…<br>ये रातें अब बोलती नहीं, खामोशी चीखती है<br>तेरी तस्वीर दीवारों पर, एक साया दीखती है<br>हवाओं में घुली है तेरी, वो भूली सी कहानी<br>मेरी दुनिया तुझ बिन अब, है बस वीरान पानी<br>लगता है जैसे तू यहीं है, मेरे आस पास कहीं<br>क्या ये वहम है मेरा, या सच में तू है यहीं?<br>साए भी अब डरते हैं, मेरे खालीपन से<br>जब तक ना मिलूं तुझसे, ये जान अटकी रहेगी<br>मेरे जिस्म में तेरी खातिर, एक आखिरी सांस बाकी रहेगी<br>ये दिल धड़कना भूलेगा, पर नाम तेरा लेगा<br>मेरी मौत भी मेरे इश्क़ का, इम्तेहान बाकी रखेगी<br>वो तेरी हँसी की गूंज, कानों में ज़हर घोले<br>बंद कमरों के अँधेरे, कई राज़ गहरे खोलें<br>तेरी छुअन की यादें अब, मेरी चमड़ी जलाती हैं<br>ये सर्द रातें मुझको, तेरी कब्र पे बुलाती हैं<br>लगता है जैसे तू यहीं है, मेरे आस पास कहीं<br>क्या ये वहम है मेरा, या सच में तू है यहीं?<br>साए भी अब डरते हैं, मेरे खालीपन से<br>जब तक ना मिलूं तुझसे, ये जान अटकी रहेगी<br>मेरे जिस्म में तेरी खातिर, एक आखिरी सांस बाकी रहेगी<br>ये दिल धड़कना भूलेगा, पर नाम तेरा लेगा<br>मेरी मौत भी मेरे इश्क़ का, इम्तेहान बाकी रखेगी<br>आईने में देखूं तो, अक्स तेरा नज़र आये<br>मेरे लफ़्ज़ों से हर पल, बस नाम तेरा ही आये<br>ये कौन सा मोड़ है जहाँ, मैं खुद से बिछड़ गया<br>तेरा साया जिस्म बनके, मेरी रूह से जकड़ गया<br>शायद यही अंजाम था, हमारी अधूरी कहानी का<br>रूह भटकेगी मेरी भी, तेरे इश्क़ में रूहानी सा<br>अब फासले नहीं मिटेंगे, ना ये तड़प कम होगी<br>बस मौत ही शायद अब, मेरा आखरी मरहम होगी<br>धड़कनें धीमी हो रही, नज़र धुंधला रही है<br>लगता है तेरी दुनिया, मुझे पास बुला रही है<br>ये अँधेरा घना होकर, तुझको मुझमें मिला रहा<br>मेरा वजूद धीरे-धीरे, तुझमें ही समा रहा<br>जब तक ना मिलूं तुझसे, ये जान अटकी रहेगी<br>मेरे जिस्म में तेरी खातिर, एक आखिरी सांस बाकी रहेगी<br>ये दिल धड़कना भूलेगा, पर नाम तेरा लेगा<br>मेरी मौत भी मेरे इश्क़ का, इम्तेहान बाकी रखेगी<br>आखिरी सांस…<br>बस एक सांस…<br>तेरे लिए…<br>बाकी… है…</p>
+
+
+
+<figure class="wp-block-pullquote"><blockquote><p>Others are Special Version.</p></blockquote></figure>
