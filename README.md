@@ -1,4 +1,6 @@
 # 🎵 Heartbreak Diaries (Vol. 3): Yaadon Ka Zeher
+
+<img width="3000" height="3000" alt="Heartbreak Diaries (Vol  3) Yaadon Ka Zeher - Abu Sayed Music" src="https://github.com/user-attachments/assets/52742d24-9520-4298-9e54-c06e92ae4994" />
         
 *Original song by **[Abu Sayed](https://abusayed.com.bd)***
 
